@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @H0RRID
+- 👋 Hi, I’m @H0RRID 🦹🏽‍♂️
 - my best friend is nayif/norrid
-- im curently doing your mom 
-- 💞️ im really lonley
-- �discord is horrid#001 pls be my friend 
+- am curently doing your mom 
+- 💞️ ur a cutie 
+- �discord is horrid#001 i need more friends 
 
 <!---
 H0RRID/H0RRID is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
