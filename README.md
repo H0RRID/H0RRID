@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @H0RRID 🦹🏽‍♂️
-- my best friend is nayif/norrid
+- my best friends are nayif/norrid and horrify
 - am curently doing your mom 
 - 💞️ ur a cutie 
 - �discord is horrid#001 i need more friends 
