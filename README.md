@@ -2,7 +2,7 @@
 - my best friends are nayif/norrid and horrify
 - am curently doing your mom 
 - 💞️ ur a cutie 
-- �discord is horrid#001 i need more friends 
+- �discord is horrid#1719 i need more friends 
 
 <!---
 H0RRID/H0RRID is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
