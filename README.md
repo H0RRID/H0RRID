@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @H0RRID 🦹🏽‍♂️
-- my best friends are nayif/norrid and horrify
+- my best friend nayif/norrid
 - am curently doing your mom 
-- 💞️ ur a cutie 
-- �discord is horrid#0001 i need more friends 
+- rosktar like ozzy 🎸🦇💞️  
+- Backdoor gang � 
 
 <!---
 H0RRID/H0RRID is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
